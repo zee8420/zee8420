@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zee8420
-- 👀 I’m interested in ...
+- 👀 I’m interested in finance
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on financial projects
 - 📫 How to reach me ...
